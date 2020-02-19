@@ -1,4 +1,4 @@
-# aviral1117.github.io
+# Aviral Sethi
 
 Website In Progress!
 
